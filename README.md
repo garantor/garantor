@@ -38,4 +38,4 @@ Backend and protocol engineer with 7+ years of experience building payment gatew
 
 ### Connect
 - **LinkedIn:** [linkedin.com/in/afolabisunday](https://www.linkedin.com/in/afolabisunday/)
-- **Email:** [sundayafolabi992@gmail.com](mailto:afolabi.professional@gmail.com)
+- **Email:** [afolabi.professional@gmail.com](mailto:afolabi.professional@gmail.com)
